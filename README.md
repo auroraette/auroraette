@@ -2,13 +2,13 @@
 <p align="center"> ꒰ ᩧ 𓈒 vessel's dream girl & pocket's princess ⁄⁄͈ . ᴗ͈)<br> ♡⸝⸝ <a href="https://aurora.crd.co/">carrd</a> | <a href="https://fairfax.atabook.org/">atabook</a> </p><br>
 <img src="https://files.catbox.moe/grl63n.png" align="left" width="300" length="300">
 <img src=https://files.catbox.moe/u22h16.png align="left" width="300" length=""><br>
-<align="left"><br> sweet princess, if through this wicked witch's trick, 
+<br> sweet princess, if through this wicked witch's trick, 
 <br>a spindle should your finger prick... 
 <br> a ray of hope there still may be in this, 
 <br> the gift i give to thee. not in death, 
 <br>but just in sleep, the fateful prophecy you'll keep. 
 <br>and from this slumber you shall wake, when true love's kiss, 
-<br>the spell shall break.<br></p>
+<br>the spell shall break.<br> </p>
 <img src=https://files.catbox.moe/0canp1.png align="left" width="" length="2500"><br>
 <p align="center"><br><br>𓂅  odette or aurora  . ⟢<br>they﹔she 𝄞݂۫ 𓈒 18 </p>
 <img src= https://64.media.tumblr.com/3d9072a1ac78418018b8e506d50e710c/e4eccd3b03350099-50/s2048x3072/b663222726002da85c925ce20d4d0eaa333f3a66.pnj align="center" width="" length="">
