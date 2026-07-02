@@ -1,5 +1,5 @@
 <img src="https://64.media.tumblr.com/5e6dcc3d99d047f7457c4713e45a12de/e4eccd3b03350099-51/s2048x3072/73e1c3f00e1e2a2e70c28f5c9389716bfdca6d07.pnj" align="center" width="" length="">
-<p align="center"> ꒰ ᩧ 𓈒 vessel's dream girl & pocket's princess ⁄⁄͈ . ᴗ͈)<br> ♡⸝⸝ <a href="https://lobo.crd.co/">carrd</a> | <a href="https://fairfax.atabook.org/">atabook</a> </p><br>
+<p align="center"> ꒰ ᩧ 𓈒 lobo lover ⁄⁄͈ . ᴗ͈)<br> ♡⸝⸝ <a href="https://lobo.crd.co/">carrd</a> | <a href="https://fairfax.atabook.org/">atabook</a> </p><br>
 <img src="https://files.catbox.moe/grl63n.png" align="left" width="300" length="300">
 <img src=https://files.catbox.moe/u22h16.png align="left" width="300" length=""><br>
 <br><br> sweet princess, if through this wicked witch's trick, 
